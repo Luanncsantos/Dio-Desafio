@@ -33,6 +33,6 @@ Começou a conhecer o mundo dos herois hoje? Quer saber a ordem dos filmes para 
 ## 30) 🕷️ Homem-Aranha: Sem volta pra Casa (2024)
 ## 31) 🏹 Gavião Arqueiro *Série*(2024)
 ## 32) 🧙🤰 Doutor Estranho: No Multiverso da Loucura (2024)
-## 33) Cavaleiro da Lua *Série* (??)
+## 33) 🌔 Cavaleiro da Lua *Série* (??)
 
 # Agora é só prepara a 🍿 e o 🥤, e partiu maratona 🎥
