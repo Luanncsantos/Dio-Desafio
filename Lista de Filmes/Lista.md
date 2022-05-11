@@ -35,4 +35,4 @@ Começou a conhecer o mundo dos herois hoje? Quer saber a ordem dos filmes para 
 ## 32) 🧙🤰 Doutor Estranho: No Multiverso da Loucura (2024)
 ## 33) 🌔 Cavaleiro da Lua *Série* (??)
 
-# Agora é só prepara a 🍿 e o 🥤, e partiu maratona 🎥
+# Agora é só preparar a 🍿 e o 🥤, e partiu maratona 🎥
